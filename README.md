@@ -19,4 +19,10 @@ Assertive - I usually am the one who listens to what the other have to say and e
 
 # Style 
 
-Modest – I do not like to brag or judge myself, my behaviour, or my results when it comes to anything I tried to do as best as I can. I usually say "Yea my performance or creation was okay, but I could have done this and this better." 
+Modest – I do not like to brag or judge myself, my behaviour, or my results when it comes to anything I tried to do as best as I can. I usually say "Yea my performance or creation was okay, but I could have done this and this better.
+
+Exact – When I explain something to somebody, I explain it the way I mean it, so there is no misunderstanding in the future.
+
+Diacritical emoji use – I used to often write with normal picture emojies, but now in the adult world and work matters, my style of using emojies slowly downscaled to simple diacritics ":-)". It very much depends on who I text to.
+
+
